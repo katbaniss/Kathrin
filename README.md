@@ -1,1 +1,2 @@
-# Kathrin
+# http://Kathrin
+KATHRIN B. GECK
